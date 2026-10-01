@@ -3,7 +3,7 @@
 🚀 **Junior Software Engineer | Scalable Applications & Data Infrastructure | Python & Java**
 
 📧 [udayinibakki@gmail.com](mailto:udayinibakki@gmail.com)  
-💼 [LinkedIn](www.linkedin.com/in/udayini-bakki-54891a343)  
+💼 [LinkedIn](https://www.linkedin.com/in/udayini-bakki-54891a343)  
 
 ---
 
