@@ -2,7 +2,6 @@
 
 🚀 **Junior Software Engineer | Scalable Applications & Data Infrastructure | Python & Java**
 
-📍 Hanamkonda, Telangana, India  
 📧 [udayinibakki@gmail.com](mailto:udayinibakki@gmail.com)  
 💼 [LinkedIn](www.linkedin.com/in/udayini-bakki-54891a343)  
 
